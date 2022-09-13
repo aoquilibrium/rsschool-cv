@@ -1,1 +1,1 @@
-# rsschool-cv
+https://aoquilibrium.github.io/rsschool-cv/cv
